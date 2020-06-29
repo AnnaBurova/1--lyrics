@@ -1,5 +1,6 @@
 # Thirty Seconds to Mars - Hurricane
 
+```
 No matter how many times that you told me you wanted to leave
 No matter how many breaths that you took you still couldn't breathe
 No matter how many nights did you lie wide awake to the sound of the poison rain

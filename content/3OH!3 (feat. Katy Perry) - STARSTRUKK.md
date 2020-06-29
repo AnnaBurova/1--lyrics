@@ -1,5 +1,6 @@
 # 3OH!3 (feat. Katy Perry) - STARSTRUKK
 
+```
 Nice legs, Daisy Dukes,
 Makes a man go (whistles),
 That's the way they all come through like (whistles),

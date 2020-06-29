@@ -1,5 +1,6 @@
 # Widescreen Mode – Dead inside
 
+```
 Can't feel it any more
 Can't see the point at all
 Can't make it back to shore

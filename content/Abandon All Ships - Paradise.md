@@ -1,5 +1,6 @@
 # Abandon All Ships - Paradise
 
+```
 Close your eyes
 We're suspended in time
 Open up the sky and let me rise, you are mine

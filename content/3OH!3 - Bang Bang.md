@@ -1,5 +1,6 @@
 # 3OH!3 - Bang Bang
 
+```
 Faster than a bullet train,
 She's like bang bang,
 You won't even feel the pain,
