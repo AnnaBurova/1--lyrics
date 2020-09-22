@@ -21,14 +21,7 @@ T-t-touchin' on my
 While I'm touchin' on your
 You know that we are gonna
 'Cause I don't give a
-
-Girl, I gotta go
-I'm finished with the show
-If you wanna, me, I won't say no
-T-t-touchin' on my
-While I'm touchin' on your
-You know that we are gonna
-'Cause I don't give a
+[x2]
 
 I can't get you outta my mind
 With the way you walk
@@ -49,13 +42,7 @@ T-t-touchin' on my
 While I'm touchin' on your
 You know that we are gonna
 'Cause I don't give a
-
-Girl, I gotta go
-I'm finished with the show
-If you wanna, me, I won't say no
-T-t-touchin' on my
-While I'm touchin' on your
-You know that we are gonna
+[x2]
 'Cause I don't give a
 
 Girl, you know I want you, want you, want you now
@@ -70,13 +57,8 @@ T-t-touchin' on my
 While I'm touchin' on your
 You know that we are gonna
 'Cause I don't give a
-
-Girl, I gotta go
-I'm finished with the show
-If you wanna, me, I won't say no
-T-t-touchin' on my
-While I'm touchin' on your
-You know that we are gonna
+[x2]
+'Cause I don't give a
 'Cause I don't give a
 'Cause I don't give a
 'Cause I don't give a
