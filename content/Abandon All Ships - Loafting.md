@@ -8,12 +8,13 @@ Took too long things went wrong now you're gone
 
 I wish we met when we were young
 No longer now, we burned up like the sun
-Tainted body, mind & soul
+Tainted body, mind and soul
 I wish we'd known before we lost control
 
-I waste my time on you & no matter what I do
-you're the voice inside my head
-I'm so sick of all your lies & no matter how hard
+I waste my time on you and no matter what I do
+You're the voice inside my head
+You're the voice inside my head
+I'm so sick of all your lies and no matter how hard
 I try I think it's time for this to die
 
 The silence it's haunting
@@ -47,12 +48,13 @@ Took too long things went wrong now you're gone
 
 I wish we met when we were young
 No longer now, we burned up like the sun
-Tainted body, mind & soul
+Tainted body, mind and soul
 I wish we'd known before we lost control
 
-I waste my time on you & no matter what I do
-you're the voice inside my head
-I'm so sick of all your lies & no matter how hard
+I waste my time on you and no matter what I do
+You're the voice inside my head
+You're the voice inside my head
+I'm so sick of all your lies and no matter how hard
 I try I think it's time for this to die
 
 This hell is reserved
@@ -65,11 +67,11 @@ This house that we built
 Felt like a prison you found
 No one holding you in
 But you still burned it fucking down
-you still burned it fucking down
+You still burned it fucking down
 
 Are you lying awake
 Does it hurt you to see
 This fucking cross I bare
 So bow down to me
-bow down to me
-bow down to me
+Bow down to me
+Bow down to me
