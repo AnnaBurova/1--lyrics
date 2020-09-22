@@ -10,7 +10,7 @@ That's the way she come through like (whistles),
 Cause I just set them up,
 Just set them up,
 Just set them up
-(to knock them down),
+(Io knock them down),
 Cause I just set them up,
 Just set them up,
 Just set them up,
