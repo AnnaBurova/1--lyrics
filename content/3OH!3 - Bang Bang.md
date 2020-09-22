@@ -5,6 +5,7 @@ Faster than a bullet train,
 She's like bang bang,
 You won't even feel the pain,
 She's like bang bang
+[x2]
 
 You read that I was bad news before you even met me.
 You know the dudes I hang with that aint exactly friendly.
@@ -19,11 +20,7 @@ So put your hands in the air
 Hands in the air
 Hands in the air
 Shes gonna shoot
-
-So put your hands in the air
-Hands in the air
-Hands in the air
-Shes gonna shoot
+[x2]
 
 She's got her finger on the trigger like bang bang
 And I'm right there in the middle like bang bang.
@@ -48,12 +45,8 @@ And you know I'm gonna make it right
 So put your hands in the air,
 Hands in the air,
 Hands in the air,
-she's gonna shoot.
-
-So put your hands in the air,
-Hands in the air,
-Hands in the air,
-she's gonna shoot.
+She's gonna shoot.
+[x2]
 
 She's got her finger on the trigger like bang bang
 And they're right there in the middle like bang bang
@@ -61,37 +54,19 @@ And they're right there in the middle like bang bang
 So put your hands in the air,
 Hands in the air,
 Hands in the air,
-she's gonna shoot.
+She's gonna shoot.
 
 Faster than a bullet train,
 She's like bang bang
 You won't even feel the pain
 She's like bang bang
-
-Faster than a bullet train,
-She's like bang bang
-You won't even feel the pain
-She's like bang bang
-
-Faster than a bullet train,
-She's like bang bang
-You won't even feel the pain
-She's like bang bang
-
-Faster than a bullet train,
-She's like bang bang
-You won't even feel the pain
-She's like bang bang
+[x4]
 
 So put your hands in the air,
 Hands in the air,
 Hands in the air,
-she's gonna shoot.
-
-So put your hands in the air,
-Hands in the air,
-Hands in the air,
-she's gonna shoot.
+She's gonna shoot.
+[x2]
 
 She's got her finger on the trigger like bang bang
 And they're right there in the middle like bang bang
@@ -99,4 +74,4 @@ And they're right there in the middle like bang bang
 So put your hands in the air,
 Hands in the air,
 Hands in the air,
-she's gonna shoot.
+She's gonna shoot.
